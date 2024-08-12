@@ -2,7 +2,7 @@
 - 👀 I’m interested in yarn
 - 🌱 I’m currently learning java
 - 💞️ I’m looking to collaborate on ???
-- 📫 How to reach me email is best
+- 📫 How to reach me email is best- kkasmieh@hotmail.com (yes I am that old lol)
 - 😄 Pronouns: she / her
 - ⚡ Fun fact: I knit and spin.
 
