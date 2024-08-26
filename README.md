@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @kat-ash59
 - 👀 I’m interested in yarn
-- 🌱 I’m currently learning java
-- 💞️ I’m looking to collaborate on ???
+- 🌱 I’m currently re-learning java for grins and snickers - seeing if my brain will acutally dust off cob webs
+- 💞️ I’m looking to collaborate on ??? how to get all the yarn lol
 - 📫 How to reach me email is best- kkasmieh@hotmail.com (yes I am that old lol)
 - 😄 Pronouns: she / her
 - ⚡ Fun fact: I knit and spin.
